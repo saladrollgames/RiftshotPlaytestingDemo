@@ -1,2 +1,3 @@
-# RiftshotPlaytestingDemo
-https://youtu.be/Z6UOMVMFzzM?si=37tYLJBhzNdh_Pff
+# Riftshot's Playtesting Demo
+
+DON'T LEAK THIS. OKAY? YOU HECKS?
